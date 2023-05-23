@@ -1,1 +1,0 @@
-# sebastianpulido.github.io
